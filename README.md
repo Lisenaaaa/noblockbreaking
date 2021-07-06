@@ -5,7 +5,9 @@
 
 no, i didn't. you can't place blocks in adventure mode, but you can with this mod.
 
-
+‎
+‎
+‎
 
 "why not just unbind your mouse?"
 
